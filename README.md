@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Vicky,
-- 👀 Currently searching an internship
+- 👀 Currently searching an fulltime oppertunity
 - #opentowork
 - #open_to_hired_as_intern
 - 📫 Mail " nayabratswain@gmail.com " .
